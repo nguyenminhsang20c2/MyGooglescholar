@@ -112,3 +112,7 @@ Giải pháp hoàn thiện hoạt động quản trị rủi ro lãi suất tạ
 Giải pháp phát triển ứng dụng Mobile banking tại Việt Nam	2012	https://scholar.google.com/citations?view_op=view_citation&hl=en&user=wguODhoAAAAJ&pagesize=100&citation_for_view=wguODhoAAAAJ:KlAtU1dfN6UC
 
 Suy ngẫm về các lý thuyết đầu tư tài chính hiện đại	2010	https://scholar.google.com/citations?view_op=view_citation&hl=en&user=wguODhoAAAAJ&pagesize=100&citation_for_view=wguODhoAAAAJ:zA6iFVUQeVQC
+
+
+
+𝐍𝐠𝐮𝐲𝐞̂̃𝐧 𝐌𝐢𝐧𝐡 𝐒𝐚́𝐧𝐠
